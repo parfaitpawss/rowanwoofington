@@ -19,3 +19,7 @@
 · 💬 : Looking for somebody to talk to :]
 
 · 🎭 : Looking roleplays/activities to do
+
+✦ 〉C + H friendly, pls cud!! :3
+
+— — — — — [ 🦴 ] — — — — —
