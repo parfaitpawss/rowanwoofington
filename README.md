@@ -20,6 +20,4 @@
 
 · 🎭 : Looking roleplays/activities to do
 
-✦ 〉C + H friendly, pls cud!! :3
-
 — — — — — [ 🦴 ] — — — — —
