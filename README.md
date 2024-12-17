@@ -4,6 +4,8 @@
 
 ✦ 〉FANDOMS : Dandy's World, South Park, ULTRAKILL, Madness Combat, Law of Talos
 
+— — — — [ 🥩🐾 ] — — — — —
+
 ✦ 〉STATUS' :
 
 · 🟢 : Most likely active, making ponies. preferably W2I
@@ -17,5 +19,3 @@
 · 💬 : Looking for somebody to talk to :]
 
 · 🎭 : Looking roleplays/activities to do
-
-— — — — — [ 🥩🐾 ] — — — — —
