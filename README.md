@@ -1,4 +1,4 @@
-— — — — — — — — — — [ 👥 ] — — — — — — — — — —
+— — — — — [ 👥 ] — — — — — 
 
 ‼️ THIS MAY CHANGE, THESE ARE JUST MY INTERESTS RIGHT NOW.
 
@@ -16,4 +16,4 @@
 
 · 🎭 : Looking roleplays/activities to do
 
-— — — — — — — — — — [ 🥩🐾 ] — — — — — — — — — —
+— — — — — [ 🥩🐾 ] — — — — —
