@@ -12,7 +12,7 @@
 
 · 🌙 : Offtab/AFK
 
-· ⛔ : Playing Roblox/Busy [ Late responds ]
+· ⛔ : Playing Roblox/Busy [ Late response ]
 
 📍 I RARELY USE...
 
