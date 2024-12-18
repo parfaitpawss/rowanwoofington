@@ -16,7 +16,7 @@
 
 📍 I RARELY USE...
 
-· 💬 : Looking for somebody to talk to
+· 💬 : Looking for somebody to talk to, w2i !!
 
 · 🎭 : Looking for roleplays/activities to do
 
