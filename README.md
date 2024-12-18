@@ -8,9 +8,9 @@
 
 ✦ 〉STATUS' :
 
-· 🟢 : Most likely active, making ponies. preferably W2I
+· 🟢 : Most likely active rn :3
 
-· 🌙 : Offtab/AFK
+· 🌙 : Offtab/AFK, w2i
 
 · ⛔ : Playing Roblox/Busy [ Late response ]
 
