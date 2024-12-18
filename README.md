@@ -1,6 +1,6 @@
 — — — — — [ 👥 ] — — — — — 
 
-‼️ THIS MAY CHANGE, THESE ARE JUST MY INTERESTS RIGHT NOW.
+‼️ THIS MAY CHANGE, THESE ARE JUST MY INTERESTS RIGHT NOW
 
 ✦ 〉FANDOMS : Dandy's World, South Park, ULTRAKILL, Madness Combat, Law of Talos, ETC.
 
