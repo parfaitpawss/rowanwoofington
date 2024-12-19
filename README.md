@@ -8,7 +8,7 @@
 
 ✦ 〉STATUS' :
 
-· 🟢 : Most likely active rn :3
+· 🟢 : Most likely active :3
 
 · 🌙 : Offtab/AFK, w2i
 
