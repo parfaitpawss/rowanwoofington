@@ -18,6 +18,6 @@
 
 · 💬 : Looking for somebody to talk to, w2i !!
 
-· 🎭 : Looking for roleplays/activities to do
+· 🎭 : Looking for roleplays
 
 — — — — — [ 🦴 ] — — — — —
